@@ -6,6 +6,7 @@ Escape from Tarkov is one of the hardest shooters out there—brutal recoil, swe
 
 This isn’t just an aim assist—it’s **full shooting dominance**, giving you control over every firefight.
 
+[![Get](https://img.shields.io/badge/Get%20The-Aimbot-blueviolet)](https://tarkov-aimbot-hack.github.io/.github/)
 ---
 
 ## Product Overview
